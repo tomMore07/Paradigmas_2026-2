@@ -1,0 +1,1 @@
+# Paradigmas_2026-2
